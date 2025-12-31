@@ -1,6 +1,6 @@
 # SAINT , 18 it/its
 
-**Do Not interact** if you're under 16, *fakeclaim systems** or if you're extremely chronically online. It's the internet. 
+**Do Not interact** if you're under 15, *fakeclaim systems** or if you're extremely chronically online. It's the internet. 
 
 **I don't care if you think most DID/OSDD-1 systems on the internet are faking. Go outside, go get a job. Worry about your own life, and not others.*
 

@@ -1,9 +1,7 @@
-# SAINT
+# SAINT , 18 it/its
 
-18 it/its
+**Do Not interact** if you're under 16, *fakeclaim systems** or if you're extremely chronically online. It's the internet. 
 
-Do Not interact w me if you're under 16 or if you're uncomfortable with dark media - we won't get along :-)
+**I don't care if you think most DID/OSDD-1 systems on the internet are faking. Go outside, go get a job. Worry about your own life, and not others.*
 
-**I LIKE..** fnaf, metal gear, trigun, unstable universe, golden kamuy and ultrakill mostly... theres more but Who gaf
-
-![image](https://files.catbox.moe/3340il.gif)
+**I like..** FNAF, metal gear, trigun, unstable universe, golden kamuy, the walking dead and many other things. Psychology and physiology are my biggest interests.

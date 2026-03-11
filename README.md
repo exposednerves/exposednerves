@@ -1,11 +1,13 @@
-# SAINT , 18 it/its
+# VALENTINE , 18 she/he/it
 
-**I like..** Gachiakuta, metal gear, trigun, unstable universe, golden kamuy, the walking dead and many other things. Psychology and physiology are my biggest interests.
+**I like..** Gachiakuta, metal gear, trigun, unstable universe, golden kamuy, the walking dead and many other things. Psychology, physiology and astronomy are my biggest interests.
 
-**Do Not interact** if you're under 15, *fakeclaim systems** or if you're extremely chronically online. It's the internet. Don't interact with me if you enjoy [incest/lolicon/shotacon/rape] in fiction (and reality, obviously) either.
+I'm an artist, editor and writer :-)
 
-**I don't care if you think most DID/OSDD-1 systems on the internet are faking. Go outside, go get a job. Worry about your own life, and not others.*
+**Do Not interact** if you're under 15, *fakeclaim systems** or if you're extremely chronically online. It's the internet. Don't interact with me if you enjoy [incest/lolicon/shotacon/rape] in any way whatsoever either. 
 
-My absolute favourites; Zanka Nijiku, Jabber Wonger, Vash the Stampede (we can tell) and Parrot :-)
+^ **More specific DNI...** "Anti self diagnosis" people - having whatever's wrong with your noggin written down on paper doesn't make you any better, or more "valid", than others. Same with people who think they're better than others in general. *I respect everyone (who's normal) and expect the same respect back.*
+
+Read my strawpage for more info ^,^
 
 ![](https://files.catbox.moe/prn358.gif)

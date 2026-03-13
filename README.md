@@ -10,4 +10,4 @@ I'm an artist, editor and writer :-)
 
 Read my strawpage for more info ^,^
 
-![](https://files.catbox.moe/prn358.gif)
+ZUKA WHEN I CATCH YOU THINGS THAT NO HUMAN HAS EVER WENT THROUGH WILL BE DONE TO YOU You will Face my wrath little buddy.
